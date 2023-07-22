@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @SlipdueJ i am from Lubbock texas. do not come to this city. the city council is "crooked" the police are "crooked" and Daniel and Deverick Whitfield are spreading
-- 👀 cauliflower stds throughout Lubbock texas.
-- 🌱 I’m currently learning..the police and news outlets know about it but do nothing.
+- 👋 Hi, I’m @Slipdue
+- 👀 
+- 🌱 I’m currently learning..
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
